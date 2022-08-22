@@ -1,0 +1,1 @@
+# Obata-Morning-at-Mono-Lake
